@@ -1,1 +1,1 @@
-https://vokmilk.github.io/rsschool-cv/cv git    
+https://vokmilk.github.io/rsschool-cv/cv
